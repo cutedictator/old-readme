@@ -90,7 +90,7 @@
 
 <img align="right" width="200" src=https://cdn.phototourl.com/member/2026-08-29-9c2f0a23-5edc-4aa5-8e81-14550cb08477.png />
 
-```𝙷𝚒 𝚙𝚎𝚘𝚙𝚕𝚎.... 𝙸'𝚖 𝚊 𝙱𝚄𝚂𝚈 𝚜𝚝𝚞𝚍𝚎𝚗𝚝 𝚊𝚗𝚍 𝙸 𝚞𝚜𝚎 𝚝𝚑𝚒𝚜 for ▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇ 𝚖𝚊𝚒𝚗𝚕𝚢..```
+```Shaba shaba shabadaba feel good shaba shaba shabadaba feel good shaba shaba shabadaba feel good..```
 
 
 
@@ -110,11 +110,11 @@
 │             ┊ a b o u t  m e. :
 │╭────────────╯
 ││
-││• Pancake objectum...
+││• Crush ko si arshiya...
 ││
 ││• Has cool interests..
 ││
-││• Minor.......
+││• Amethyst.......
 ││
 ││• CVC'2032..
 ││
@@ -135,7 +135,7 @@
 
 [PANCAKE sp](https://pancakegod.straw.page)
 
-```𝙲𝚘𝚘𝚕𝚎𝚛 𝚊𝚗𝚍 𝚜𝚎𝚛𝚒𝚘𝚞𝚛𝚜 𝚜𝚙 & 𝚛𝚎𝚗𝚝𝚛𝚢 𝙸𝚂 𝙽𝙾𝚃 𝙶𝙾𝙽𝙽𝙰 𝙴𝚇𝙸𝚂𝚃.```
+```shaba shaba shabadaba feel good shaba shaba shabadaba FEEL GOOD.```
 <br clear="left" />
 
 
