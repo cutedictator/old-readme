@@ -139,5 +139,5 @@
 <br clear="left" />
 
 
-| [Give me pancakes and I'll buy anything for you..]((https://rentry.co/pancakegod)) |
+| [Shaba shaba shabadaba shaba shabadaba shaba shaba shabadaba..]((https://rentry.co/pancakegod)) |
 | :---: |
